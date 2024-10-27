@@ -1,1 +1,1 @@
-## Hi there, welcome to Lecturer Assistant Sekolah Tinggi Teknologi Sony Sugema 👋
+## Hi there, welcome to Lecturer Assistant Sekolah Tinggi Teknologi Informatika Sony Sugema 👋
